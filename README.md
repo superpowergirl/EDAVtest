@@ -1,3 +1,3 @@
 # EDAVtest
 
-Today has been a crazy day! OMG!
+practice makes perfect!
